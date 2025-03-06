@@ -2,7 +2,7 @@
 
 **`Acadêmico em TSI`**
 
-Me chamo Eveton Barbosa dos Santos , tenho 26 anos e sou um bahiano arretado. Atualmente, estou cursando Tecnologia em Sistemas para Internet no IFES e sou apaixonada por tecnologias, cactos e muito café.
+Me chamo Eveton Barbosa dos Santos , tenho 26 anos e sou um baiano arretado. Atualmente, estou cursando Tecnologia em Sistemas para Internet no IFES e sou apaixonada por tecnologias, cactos e muito café.
 
 <p align="left">
     <a href="https://www.instagram.com/toon_barbosa?igsh=OWVsZmwwMHVtNjh6&utm_source=qr">
